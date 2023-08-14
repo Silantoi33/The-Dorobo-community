@@ -7,8 +7,8 @@ When they want to gather the head of the boma who is the father has to first cal
 This short story will discuss how the Ndorobo gather honey in the forest.
 ### Gathering Honey.
 Maasai gather honey for the following reasons; 
-- is for preparing brew,
-- another reason is to be used for medicine whereby the mix honey with herbals,
+- for preparing brew,
+- another reason is that they mix it with herbals,
 - another reason is for  batter trading,
 - and lastly they can use it to pay dowry.
 
