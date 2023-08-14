@@ -1,7 +1,8 @@
 # The-Dorobo-community
 ## Introduction
 The Dorobo they can also be called *Ndorobo* or *Torobo*. They are one of the Maasai group found in `Kenya` and `Tanzania`. They leave in Maasai mara in Kenya and Serengeti in Tazania. They are well known as Maasai group who hunt and gathers. they do not practice cattle pastrolism. 
-The Dorobo leaves like other maasai in a homestead know as `Manyatta`.All members of the family particularly sons and their wives and child leave in same compound where they father leaves. the father is the head of the homestead ~or boma~. the father and his sons and grandsons their work is to go hunt and gather in the bush. While women they stay at home to take care of the `boma` for example reparing the manyattas and taking care of the children. An example of manyatta see below image. ![MANYATTA](https://i0.wp.com/friendsofnamuncha.org/wp-content/uploads/2020/06/Manyatta.jpg?w=800&ssl=1)
+The Dorobo leaves like other maasai in a homestead know as `Manyatta`.All members of the family particularly sons and their wives and child leave in same compound where they father leaves. the father is the head of the homestead ~or boma~. the father and his sons and grandsons their work is to go hunt and gather in the bush. While women they stay at home to take care of the `boma` for example reparing the manyattas and taking care of the children. An example of manyatta see below image. 
+![MANYATTA](https://i0.wp.com/friendsofnamuncha.org/wp-content/uploads/2020/06/Manyatta.jpg?w=800&ssl=1)
 When they want to gather the head of the boma who is the father has to first call this sons and plan for the gather. The father is the one who gives directives for the gather and teach new sons who have never gone to gather. He also tells them reason for gather. 
 This short story will discuss how the Ndorobo gather honey in the forest.
 ### Gathering Honey.
