@@ -11,5 +11,6 @@ Maasai gather honey for the following reasons;
 - another reason is to be used for medicine whereby the mix honey with herbals,
 - another reason is for  batter trading,
 - and lastly they can use it to pay dowry.
+
 Father and two of his sons carry bags where they will put honey and weapons such as pangas, arrows and rungus to protect themselves from wild animals.
 They walk through the forest looking for a honey bird also known as honeyguide to guide them where bees are. For more information about the honeyguide click here
